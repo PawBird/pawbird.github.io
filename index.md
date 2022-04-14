@@ -1,3 +1,3 @@
 # Under Construction
 
-> We will shortly provide further data to our Game Development Studio here
+> all our employees are currently unavailable. Please visit the zoo and hold the lion.
